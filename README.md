@@ -7,6 +7,6 @@
 
 ok i fine
 
-I'm Fine 
+I'm Fine  no u r !
 
 sound good🕹️
