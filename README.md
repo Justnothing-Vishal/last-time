@@ -6,7 +6,4 @@
 ## The good things take time
 
 ok i fine
-
-I'm Fine 
-
 sound good🕹️
